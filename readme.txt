@@ -1,0 +1,1 @@
+https://shigekamai.github.io/strona-na-zaliczenie/
